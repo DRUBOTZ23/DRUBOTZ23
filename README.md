@@ -3,7 +3,7 @@
 ![my-dress-up-darling-anime-happy](https://user-images.githubusercontent.com/88397313/224462663-6b5e62a4-0427-4a10-b1df-c19e0860afe6.gif)
 
 <!--
-**BOY-H4MZ4H/BOY-H4MZ4H** is a ✨ _special_ ✨ repository because its `README.md` (Brute) appears on your GitHub profile.
+**DRUBOTZ23/DRUBOTZ23** is a ✨ _special_ ✨ repository because its `README.md` (Brute) appears on your GitHub profile.
 
 Here are some ideas to get you started:
 
